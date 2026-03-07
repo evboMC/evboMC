@@ -8,3 +8,4 @@
 
  i will remake my pt straw Ok
  normal strawpage = curresage
+took the stupid doc off my profile cuz who gaf
