@@ -10,3 +10,5 @@
  normal strawpage = curresage
 
 took the stupid doc off my profile cuz who gaf
+
+previously known as @cchargebolt
