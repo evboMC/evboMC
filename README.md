@@ -1,14 +1,14 @@
+
 ![](https://komarev.com/ghpvc/?username=cchargebolt&color=e0678c&label=civilizations&abbreviation=true) 
 
-![IMG_0606](https://github.com/user-attachments/assets/e90d5616-d7b9-4964-a3c3-c0a82e5be11f)
+![IMG_0673](https://github.com/user-attachments/assets/669d217c-02f3-4d19-a666-fe69258df18a)
 
+offtab mostly w2i :o))))
 
+i love gamkat and gamzee makara i love gamzee makara i love gamzee makara
 
- USUALLY OFFTAB SO w2i
+i dont fictkin anythinf besides bluudud(bluuworld + forsaken ver) and laughability :oP
 
- i will remake my pt straw Ok
- normal strawpage = curresage
+read my strawpage n send gimmicks n sign my ata i love every message
 
-took the stupid doc off my profile cuz who gaf
-
-previously known as @cchargebolt
+ PLEASE HOMESTUCK OEOPLE BE MY FIRME D RHDO'NAJJDOIOV SOJSJFD IM SO COOL ANS NICE
