@@ -7,7 +7,7 @@ offtab mostly w2i :o))))
 
 i love gamkat and gamzee makara i love gamzee makara i love gamzee makara
 
-i dont fictkin anythinf besides bluudud(bluuworld + forsaken ver) and laughability :oP
+i have a few other accs ; @bluudude @laughabiiity @bubbleguppytrio
 
 read my strawpage n send gimmicks n sign my ata i love every message
 
