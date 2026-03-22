@@ -11,4 +11,4 @@ i have a few other accs ; @bluudude @laughabiiity @bubbleguppytrio
 
 read my strawpage n send gimmicks n sign my ata i love every message
 
- PLEASE HOMESTUCK OEOPLE BE MY FIRME D RHDO'NAJJDOIOV SOJSJFD IM SO COOL ANS NICE
+ ohh I JUST👀👀👀WISSHHH A HOmeSTUCK👀👀👀PERSONWoUlD👀👀B MY FRIEEEND👀👀👀oHH I JUSSST👀👀wwISSSSHH
