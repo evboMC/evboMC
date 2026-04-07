@@ -1,5 +1,9 @@
 like and sub to my atabook
 
+also dont post my skins on pin or copy i will block u son 😂
+
+inspo is ok just ask bruh 
+
 ![](https://komarev.com/ghpvc/?username=cchargebolt&color=5e5c5c&label=blot+jrs&abbreviation=true) 
 
 ![IMG_0731](https://github.com/user-attachments/assets/8e2517f4-aaf6-4444-a790-4c76de56ea59)
