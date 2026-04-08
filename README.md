@@ -2,6 +2,7 @@
        
   ![](https://komarev.com/ghpvc/?username=cchargebolt&color=5e5c5c&label=blot+jrs&abbreviation=true)
 	<img width="1807" height="1407" alt="Untitled395_20260407215332" src="https://github.com/user-attachments/assets/deeb6451-6423-4310-8f08-c683510b35d1" />
+	[straw ⭐️](https://curresage.straw.page) [ata 🖌️](https://gamzeemakara.atabook.org/)
 	<img width="585" height="291" alt="tumblr_1a45a9584124581721735027da7e83d7_2190a8fa_640" src="https://github.com/user-attachments/assets/06d14963-f4d4-4c9a-bd13-2d3daf105505" />
 
 ![tumblr_314274a57b772f17ab6093b6789d872d_fe6e6c4e_400](https://github.com/user-attachments/assets/093e2258-374d-43c9-ad97-97fd53cd84c4) ![tumblr_3765b3659c4929a9a6f338e6be615bf3_f12030db_250](https://github.com/user-attachments/assets/fffebd21-5a20-4ee6-a1af-4150d3883ae9)
