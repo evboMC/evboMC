@@ -4,8 +4,6 @@
 
 
 ill make this look ok later bruh<img width="400" height="300" alt="tumblr_2a4db503be533959ae066a7cde6706e8_d8389375_400" src="https://github.com/user-attachments/assets/5320cca7-f7f3-4e8f-a0a1-7fb1ad9d0eac" />
-ok anyway blah blah blah ill rmk my ata when i feel like it so for now jsut send me stuff in my straw, Ok
-
 
 again pls domt post my skns on pinterest, or copy. 
 
