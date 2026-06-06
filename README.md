@@ -4,7 +4,7 @@ i lik group cuds and interacting witj peope If u are sk8 fan ily bmf <- speaking
 
 guys i swear im not evil if u talk to me first ill gladly talk back usually w2i tho
 
-dont post my skins / copy ok. inspo = ok
+dont post my skins / copy. inspo = ok
 
 i switch fandoms up alot so you may see me in mutiple areassuh
 
