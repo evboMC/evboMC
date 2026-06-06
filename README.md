@@ -4,6 +4,11 @@ i lik group cuds and interacting witj peope If u are sk8 fan ily bmf <- speaking
 
 guys i swear im not evil if u talk to me first ill gladly talk back usually w2i tho
 
-dont post or copy my skins ok inspo is fine idgaf and colorpicking is whatever i dont care either just no copy Plz
+dont post my skins / copy ok. inspo = ok
 
 i switch fandoms up alot so you may see me in mutiple areassuh
+
+
+
+
+Torchflower: hello we are torchflower
