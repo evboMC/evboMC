@@ -1,14 +1,1 @@
-<img width="375" height="399" alt="1000011632" src="https://github.com/user-attachments/assets/d0826db5-1350-4df7-97a4-b1b4cf1b30e9" />
-
-i lik group cuds and interacting witj peope If u are sk8 fan ily bmf <- speaking on bmf i love making new green names u guys r so cool
-
-guys i swear im not evil if u talk to me first ill gladly talk back usually w2i tho
-
-dont post my skins / copy. inspo = ok
-
-i switch fandoms up alot so you may see me in mutiple areassuh
-
-
-
-
-Torchflower: hello we are torchflower
+<img width="4096" height="2800" alt="bai" src="https://github.com/user-attachments/assets/bcb28ddf-57f9-429a-b2a0-2a6e650fd33b" />
