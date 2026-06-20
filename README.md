@@ -1,3 +1,5 @@
 i love twixxel cosplayers
 
-<img width="4096" height="2800" alt="bai" src="https://github.com/user-attachments/assets/bcb28ddf-57f9-429a-b2a0-2a6e650fd33b" />
+look at my twix bar bro😭😭😭finna get slimed OUT
+
+<img width="1380" height="1080" alt="IMG_0956" src="https://github.com/user-attachments/assets/ac249de0-2190-4c17-bb9b-daeba63f70bf" />
