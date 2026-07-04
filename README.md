@@ -1,6 +1,6 @@
 i love twixxel cosplayers
 
-ATA TAKEN OFF TEMPORARILY DUE TO THE DOXXING SITUATION WITH PT (ill probably remake it anyway)
+ATA TAKEN OFF + all my alts TEMPORARILY DUE TO THE DOXXING SITUATION WITH PT (ill probably remake it anyway)
 
 look at my twix bar bro😭😭😭finna get slimed OUT
 
