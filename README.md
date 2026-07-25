@@ -1,7 +1,6 @@
 sign my ata and YOUR doomed ship or duo will COME BACK!!!!NO SCAM
 
-<img width="1000" height="1080" alt="IMG_1122" src="https://github.com/user-
-attachments/assets/dcf05467-d2a3-4581-8bc4-89cf26590e48" />
+<img width="686" height="386" alt="IMG_1129" src="https://github.com/user-attachments/assets/7b860f14-1cb5-4d10-a5d9-968b8c57a433" />
 
 
 
