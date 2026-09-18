@@ -1,3 +1,22 @@
-i dont know how to make this kawaii
+$${\color{#8ebb1e}zach \space \color{#ffff}or \space \color{#2f3325}vice \space \color{#8ebb1e}!!}$$
 
-<img width="3843" height="2039" alt="IMG_4280" src="https://github.com/user-attachments/assets/e05aa0d7-bad9-442e-b8f0-284a59249484" />
+
+$${\color{#8ebb1e}any \space \color{#2f3325}prns!!}$$
+<p align="center">
+ 
+<p></p>
+<p align="center">
+<img width="300" alt width="1000" alt="IMG_1500" src="https://github.com/user-attachments/assets/7ac8910a-ed0e-4622-b5a8-598b6cb78025" />
+<p align=“center”>
+
+
+
+
+<div align="center">
+  <a href="https://curresage.straw.page/">straw</a> !!!
+  <a href="https://parkourcivilization.atabook.org/">ata</a>
+</div>
+
+
+<p align="center">
+thank you fid for helping me with this :)
