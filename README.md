@@ -18,7 +18,7 @@ $${\color{#ff792b}check \space \color{#873c10}links!!}$$
 
 <div align="center">
   <a href="https://curresage.straw.page/">straw</a> 
-  <a href="https://parkourcivilization.atabook.org/">ata</a>
+  <a href="https://kennymccormick.atabook.org/">ata</a>
    <a href="https://prns.cc/zepua/">prns.cc</a>
 </div>
 
