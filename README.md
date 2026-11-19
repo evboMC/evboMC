@@ -18,7 +18,7 @@ $${\color{#8ebb1e}any \space \color{#2f3325}prns!!}$$
 <div align="center">
   <a href="https://curresage.straw.page/">straw</a> 
   <a href="https://parkourcivilization.atabook.org/">ata</a>
-   <a href="https://https://prns.cc/zepua/">prns.cc</a>
+   <a href="https://prns.cc/zepua/">prns.cc</a>
 </div>
 
 
