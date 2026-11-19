@@ -24,7 +24,7 @@ $${\color{#ff792b}check \space \color{#873c10}links!!}$$
 
 
 <p align="center">
-thank you fid for helping me with this :)
+i was lazy when i made the art dont bulleh meh
 
 <p align="center">
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ୨୧
