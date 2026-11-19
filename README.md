@@ -1,15 +1,16 @@
 <p align="center">
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ୨୧
 
-$${\color{#8ebb1e}zach \space \color{#ffff}or \space \color{#2f3325}vice \space \color{#8ebb1e}!!}$$
+$${\color{#ff792b}zach \space \color{#ffff}or \space \color{#873c10}vice \space \color{#ff792b}!!}$$
 
 
-$${\color{#8ebb1e}any \space \color{#2f3325}prns!!}$$
+$${\color{#ff792b}check \space \color{#873c10}links!!}$$
 <p align="center">
  
 <p></p>
 <p align="center">
-<img width="300" alt width="1000" alt="IMG_1500" src="https://github.com/user-attachments/assets/7ac8910a-ed0e-4622-b5a8-598b6cb78025" />
+<img width="500" alt width="1000"alt="IMG_2060" src="https://github.com/user-attachments/assets/0e5305f1-b680-422b-858e-7bf71c887308" 
+ />
 <p align=“center”>
 
 
