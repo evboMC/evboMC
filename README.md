@@ -4,7 +4,7 @@
 $${\color{#ff792b}zach \space \color{#ffff}or \space \color{#873c10}vice \space \color{#ff792b}!!}$$
 
 
-$${\color{#ff792b}check \space \color{#873c10}links!!}$$
+$${\color{#ff792b}any \space \color{#873c10}prns!!}$$
 <p align="center">
  
 <p></p>
